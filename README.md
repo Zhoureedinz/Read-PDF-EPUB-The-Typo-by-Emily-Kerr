@@ -2,7 +2,7 @@ To Download Or Read The Typo
 
 Visit Link Bellow
 
-[📖> [READING NOW AND EASY TO DOWNLOAD]]([url](https://uk.ebookarea.xyz/?book=B0CBJ3J3T1))
+<a href="https://uk.ebookarea.xyz/?book=B0CBJ3J3T1">📖&gt; [READING NOW AND EASY TO DOWNLOAD]</a>
 
 Here You Can Download Or Read Free Books
 
